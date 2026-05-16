@@ -1,4 +1,4 @@
-# 
+# nft floor sweeper bot high-frequency Bot - flip-strategies and multi-wallet-support is the best nft floor sweeper bot, featuring flip-strategies and multi-wallet-support. Fast,
 
 
 
